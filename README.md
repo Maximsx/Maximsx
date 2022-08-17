@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Maximsx Talent Partner.
+- 👋 Hi, I’m @Maximsx. Talent Partner and Instructor.
 - 👀 I’m interested in People and Technology.
 - 🌱 I’m currently learning Project management.
 - 💞️ I’m also Recruiting.
